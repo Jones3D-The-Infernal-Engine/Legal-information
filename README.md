@@ -8,6 +8,8 @@ https://www.gog.com/game/indiana_jones_and_the_infernal_machine
 Steam:
 https://store.steampowered.com/app/904540/Indiana_Jones_and_the_Infernal_Machine/
 
+Or other LEGAL stores.
+
 Please Disney, it's a fan project running on the original game engine. So if any mods improve the game, players will be tempted to buy the original game, and only you will be getting the money. We don't want money...
 
 # End
